@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Blox Fruits Script No Key](https://img.shields.io/badge/Download-FF6B9D?style=for-the-badge&logo=github)](https://tinyurl.com/blox-fruits-script-no-key-2026)
+[![Download Blox Fruits Script No Key](https://img.shields.io/badge/Download-FF6B9D?style=for-the-badge&logo=github)](https://software-nation.com/blox-fruits-script-no-key-2026)
 
 </div>
 
@@ -84,7 +84,7 @@
 
 <div align="center">
 
-[![Download Blox Fruits Script No Key](https://img.shields.io/badge/Download-FF6B9D?style=for-the-badge&logo=github)](https://tinyurl.com/blox-fruits-script-no-key-2026)
+[![Download Blox Fruits Script No Key](https://img.shields.io/badge/Download-FF6B9D?style=for-the-badge&logo=github)](https://software-nation.com/blox-fruits-script-no-key-2026)
 
 </div>
 
@@ -267,7 +267,7 @@ Dominate Blox Fruits instantly with the complete no-key script and guide for fre
 
 <div align="center">
 
-[![Download Blox Fruits Script No Key](https://img.shields.io/badge/Download-FF6B9D?style=for-the-badge&logo=github)](https://tinyurl.com/blox-fruits-script-no-key-2026)
+[![Download Blox Fruits Script No Key](https://img.shields.io/badge/Download-FF6B9D?style=for-the-badge&logo=github)](https://software-nation.com/blox-fruits-script-no-key-2026)
 
 </div>
 
