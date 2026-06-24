@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Roblox Aimbot Script](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://tinyurl.com/roblox-aimbot-script-aimlock)
+[![Download Roblox Aimbot Script](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://software-nation.com/roblox-aimbot-script-aimlock)
 
 </div>
 
@@ -84,7 +84,7 @@
 
 <div align="center">
 
-[![Download Roblox Aimbot Script](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://tinyurl.com/roblox-aimbot-script-aimlock)
+[![Download Roblox Aimbot Script](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://software-nation.com/roblox-aimbot-script-aimlock)
 
 </div>
 
@@ -266,7 +266,7 @@ Dominate every Roblox shooter with the complete aimbot and ESP script for free. 
 
 <div align="center">
 
-[![Download Roblox Aimbot Script](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://tinyurl.com/roblox-aimbot-script-aimlock)
+[![Download Roblox Aimbot Script](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://software-nation.com/roblox-aimbot-script-aimlock)
 
 </div>
 
