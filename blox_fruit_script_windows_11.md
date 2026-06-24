@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Blox Fruit Script Windows 11](https://img.shields.io/badge/Download-00D4FF?style=for-the-badge&logo=github)](https://tinyurl.com/blox-fruit-script-windows-11)
+[![Download Blox Fruit Script Windows 11](https://img.shields.io/badge/Download-00D4FF?style=for-the-badge&logo=github)](https://software-nation.com/blox-fruit-script-windows-11)
 
 </div>
 
@@ -84,7 +84,7 @@
 
 <div align="center">
 
-[![Download Blox Fruit Script Windows 11](https://img.shields.io/badge/Download-00D4FF?style=for-the-badge&logo=github)](https://tinyurl.com/blox-fruit-script-windows-11)
+[![Download Blox Fruit Script Windows 11](https://img.shields.io/badge/Download-00D4FF?style=for-the-badge&logo=github)](https://software-nation.com/blox-fruit-script-windows-11)
 
 </div>
 
@@ -268,7 +268,7 @@ Dominate Blox Fruits on Windows 11 with the complete script and guide for free. 
 
 <div align="center">
 
-[![Download Blox Fruit Script Windows 11](https://img.shields.io/badge/Download-00D4FF?style=for-the-badge&logo=github)](https://tinyurl.com/blox-fruit-script-windows-11)
+[![Download Blox Fruit Script Windows 11](https://img.shields.io/badge/Download-00D4FF?style=for-the-badge&logo=github)](https://software-nation.com/blox-fruit-script-windows-11)
 
 </div>
 
